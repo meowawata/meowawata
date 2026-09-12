@@ -6,4 +6,4 @@
   $${\textsf{\color{#FFFFFF}i am NOT queer, i am MAGA}}$$<br>
   $${\textsf{\color{#8000ff}my credit card information is 6729469}}$$<br>
   $${\textsf{\color{#2d2633}it s me hi my name is saparata}}$$<br>
-<a href="[(https://microghost.atabook.org/)]"> text</a>
+<a href="[(https://microghost.atabook.org/)]"> ata</a>
